@@ -4,3 +4,4 @@ Camille Martin : présidente
 Yanis Haddad : mécanicien référent
 Mei Chen : communication
 Julien Lambert : trésorier
+Brenann AUSSANT : nouveau bénévole, site web
